@@ -6,5 +6,4 @@ Ben does not smell much at all
 
 Kenny does.
 
-
-Poo bum is the best phrase in the world.
+All of the stuff that was here was rubbish.
