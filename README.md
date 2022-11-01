@@ -6,8 +6,4 @@ Ben does not smell much at all
 
 Kenny does.
 
-
-### Credits
-
-Ben
-Kenny
+All of the stuff that was here was rubbish.
